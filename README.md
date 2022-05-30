@@ -1,16 +1,15 @@
-### Hi there 👋
+### GREETINGS FELLOW HUMAN
 
-<!--
-**tshamz/tshamz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+MY NAME IS SHAMBORA, TYLER AND MY EPOCH TIMESTAMP IS 602530293621 AND MY FAVORITE COLOR IS #89CFF0I AND I AM A HUMAN CODER JUST LIKE YOU.
 
-Here are some ideas to get you started:
+PLEASE COMMUNICATE WITH ME VIA. ELECTRONIC MAIL IF YOU WOULD LIKE TO DISCUSS THE FOLLOWING HUMAN TOPICS:
+- TRAFFIC
+- WEATHER
+- WORKPLACE
+- THE BOSS AT WORKPLACE
+- SOLVING INTERNET CAPTCHAS
+- POPULAR CULTURE
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+GOOD-BEY. OOPS I MADE A HUMAN MISTAKE. HA HA.
+
+[END ROUTINE]
